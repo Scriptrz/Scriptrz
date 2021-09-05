@@ -1,6 +1,6 @@
 ## Opa sou o rz iae!
 - 🎓 × PROGRAMADOR
-- 💰 × APRENDENDO 
+- 💰 × gaby♡
 - 📝 × DESIGNER 
 - 🏜️ × GO QUIRINOPOLIS 
 
