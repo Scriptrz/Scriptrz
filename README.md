@@ -1,8 +1,9 @@
-## Opa sou o rz iae!
+## sou conhecido como cyber ou rz!
 - 🎓 × PROGRAMADOR
-- 💰 × gaby♡
+- 💰 × 02.08gaby♡
 - 📝 × DESIGNER 
 - 🏜️ × GO QUIRINOPOLIS 
+- 🔥 × 𝑪𝒓𝒐𝒘 𝑳𝒂𝒃𝒔 ♡
 
  <div>
   <a href="https://github.com/Scriptrz">
