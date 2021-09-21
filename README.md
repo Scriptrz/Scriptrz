@@ -1,6 +1,6 @@
-## sou conhecido como cyber ou rz!
+## sou conhecido como system♡!
 - 🎓 × PROGRAMADOR
-- 💰 × 02.08gaby♡
+- 💰 × 02L08♡
 - 📝 × DESIGNER 
 - 🏜️ × GO QUIRINOPOLIS 
 - 🔥 × 𝑪𝒓𝒐𝒘 𝑳𝒂𝒃𝒔 ♡
