@@ -1,9 +1,4 @@
-## sou conhecido como system♡!
-- 🎓 × PROGRAMADOR
-- 💰 × 02L08♡
-- 📝 × DESIGNER 
-- 🏜️ × GO QUIRINOPOLIS 
-- 🔥 × 𝑪𝒓𝒐𝒘 𝑳𝒂𝒃𝒔 ♡
+171
 
  <div>
   <a href="https://github.com/Scriptrz">
